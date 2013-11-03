@@ -1,4 +1,4 @@
-Reading_Notes
+Reading Notes
 =============
 
-I read a lot. When I read non-fiction, I like to take notes on paper. This is where I store transcribed versions of said notes for future reference.
+I read a lot. When I read non-fiction, I like to take notes on paper. When I'm done reading for the day I digitize the notes and store them online.
